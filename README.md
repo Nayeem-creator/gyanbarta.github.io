@@ -1,1 +1,0 @@
-# gyanbarta.github.io
